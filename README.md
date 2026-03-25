@@ -1,6 +1,5 @@
-<img width="3000" height="3000" alt="image" src="https://github.com/user-attachments/assets/c4872986-5709-427f-b5c3-8c18998b8564" />
-<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/c2c2d898-a3bc-4a9c-84c7-1a624cbc08fc" />
 
+<img width="500" height="2000" alt="Untitled51_20260312004013" src="https://github.com/user-attachments/assets/65760929-5862-426f-ae0e-beec5dedb567" />
 
 > Brazilian Portuguese - English! 
 
